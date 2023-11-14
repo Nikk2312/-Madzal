@@ -1,0 +1,2 @@
+esto es para que los empleados de #Madzal Technologies Inc actualizen la paginaa igualmente como su creador @VtxNikk
+Y si tu quieres ver el codigo estas bienvenido Nibel Corp te dara una buena acogida
